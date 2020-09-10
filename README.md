@@ -1,1 +1,0 @@
-# jgadvd.github.io
